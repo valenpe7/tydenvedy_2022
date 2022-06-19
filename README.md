@@ -1,1 +1,0 @@
-# tydenvedy_2022
